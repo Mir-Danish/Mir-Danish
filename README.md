@@ -1,4 +1,4 @@
-## Hi, My Name is Danish Fayaz ⚡
+## Hi, I am Danish Fayaz ⚡
 
  🔭 Bachelors of Technology(Computer Science And Engineering)<br/>
  🌱 I’m currently learning<br/>
