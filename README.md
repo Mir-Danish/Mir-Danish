@@ -1,4 +1,4 @@
-## Hi, I am Danish Fayaz ⚡
+## Hi, My name is Mir Danish ⚡
 
  🔭 Bachelors of Technology(Computer Science And Engineering)<br/>
  🌱 I’m currently learning<br/>
